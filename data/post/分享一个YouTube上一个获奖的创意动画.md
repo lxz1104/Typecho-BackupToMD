@@ -1,0 +1,1 @@
+<video poster="https://s1.ax1x.com/2018/12/24/FcPAaR.jpg" src="https://cloud.darkhat.xyz/video/%E6%B2%99%E4%B9%8B%E5%A0%A1.mp4"></video>
